@@ -1,1 +1,1 @@
-![](https://lh3.googleusercontent.com/R0ryL7UHbGAR5AiBlJB7sGfzokdcLq3KgO5-JDTm6_XoandU6_-xJYMHyNeIEWuzbGZ9m-MGRjbZvDxzvDA2=w1920-h902-rw)
+![](https://southcentralus1-mediap.svc.ms/transform/thumbnail?provider=spo&inputFormat=png&cs=fFNQTw&docid=https%3A%2F%2Fbsd405-my.sharepoint.com%3A443%2F_api%2Fv2.0%2Fdrives%2Fb!HtR1J6CtmEexPlxTxEusMCUh9xhy63NIpbmjG3ezVPjnBA65LhLuSpepQcAKBLsd%2Fitems%2F01GY3ZWAFGPOPQH3P6PJFJ5URJIUKTF6QN%3Fversion%3DPublished&cTag=%22c%3A%7B039F7BA6-FEED-4A7A-9ED2-29451532FA0D%7D%2C2%22&encodeFailures=1&width=1920&height=848&srcWidth=&srcHeight=)
