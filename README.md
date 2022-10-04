@@ -5,3 +5,6 @@
 Collector, trader, programmer, modeler, graphics artist. 
   
 Profile to left is an alternative for contact and surface level contact.
+
+
+Charles gu likes to eawt hot and sour chicken balls.
