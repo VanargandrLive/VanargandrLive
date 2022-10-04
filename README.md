@@ -4,4 +4,4 @@
 
 Collector, trader, programmer, modeler, graphics artist. 
   
-< Alternative for contact and surface level contact.
+Profile to left is an alternative for contact and surface level contact.
