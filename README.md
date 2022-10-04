@@ -7,3 +7,5 @@ Collector, trader, programmer, modeler, graphics artist.
 Profile to left is an alternative for contact and surface level contact.
 
 VRC + KK sh, MoonScepter Divx w/ ISRPV.
+
+<a href="https://discord.com/users/493085182044143616"><img align="right" src="https://discord.com/channels/@me"/></a>
