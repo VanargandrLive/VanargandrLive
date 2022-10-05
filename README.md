@@ -1,4 +1,4 @@
-<a href="https://discord.com/users/493085182044143616"><img align="left" src="https://lanyard.ushiekane.dev/api/493085182044143616?borderRadius=8px&hideDiscrim=true&idleMessage=Currently%20doing%20Refeia%20stuff"/></a>
+<a href="https://discord.com/users/549798195027247104"><img align="left" src="https://lanyard.ushiekane.dev/api/549798195027247104?borderRadius=8px&hideDiscrim=true&idleMessage=Currently%20doing%20Refeia%20stuff"/></a>
 
 ## 📋 Profile : Refeia
 
