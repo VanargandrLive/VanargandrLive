@@ -5,3 +5,5 @@
 カナリア あなたのその歌声は　深い深い森へと差し込んだ光
 
 faq: i privated most of my respos
+
+Green status should be read as streaming, api does not read stream status.
