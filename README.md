@@ -3,3 +3,5 @@
 <p>
   <a href="https://count.getloli.com/"><img src="https://count.getloli.com/get/@rreiy?theme=rule34"></a>
 </p>
+
+Inactive until further notice, contact me on discord if needed.
